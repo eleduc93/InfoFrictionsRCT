@@ -1,1 +1,1 @@
-# InfoFrictionsRCT
+# RCT1
